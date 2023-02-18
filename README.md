@@ -1,1 +1,0 @@
-# omagad.com
